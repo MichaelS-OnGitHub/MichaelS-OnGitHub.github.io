@@ -1,1 +1,3 @@
 # Buffy - Die Vampierjägerin
+
+Buffy – Im Bann der Dämonen (kurz Buffy) ist eine US-amerikanische Fernsehserie nach der Idee von Joss Whedon. Sie wurde als Buffy the Vampire Slayer im März 1997 erstmals ausgestrahlt. Es geht um die mit mystischen Kräften ausgestattete Vampirjägerin Buffy, die gemeinsam mit ihren Freunden gegen dunkle Mächte kämpft.
