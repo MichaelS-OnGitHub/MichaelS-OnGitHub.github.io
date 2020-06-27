@@ -7,3 +7,5 @@ Buffy – Im Bann der Dämonen (kurz Buffy) ist eine US-amerikanische Fernsehser
 * jagt Vampire und Dämonen
 * Freund: Angel
 * Feind: Spike
+
+> Ich bitte Sie, wir sind in Sunnydale. Glauben Sie, der Teufel hat nichts besseres zu tun?
